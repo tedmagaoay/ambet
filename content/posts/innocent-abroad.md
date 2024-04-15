@@ -1,0 +1,36 @@
+
+---
+title: "Innocent Abroad"
+summary: ""
+description: ""
+
+date: 2011-03-04
+draft: false
+---
+
+On June 19 we will celebrate Rizal’s 150th birthday. To prepare for a number of events and speaking engagements, I have been re-reading his letters. To get to know Rizal, you have to read his own writings. It is unfortunate, however, that our National Hero wrote a lot for a nation that does not read.
+
+Imagine a multi-volume correspondence: 954 known letters exchanged between him and others, arranged by recipient. We have a volume of letters to his family, a thick volume of letters to his colleagues in the Propaganda Movement, two volumes of letters to his friend Ferdinand Blumentritt, and a slim volume called “Miscellaneous Letters” to people who could not be classified in the other volumes. All the love letters exchanged with the women in his life are in “Miscellaneous.”
+
+To a generation with a short attention span, to a people who communicate via SMS in abbreviated text messages, Rizal’s letters can be very long. When you realize everything was written long-hand, you cannot help but marvel at the reams of paper he consumed and the fact that he didn’t develop Carpal Tunnel Syndrome.
+
+His letters to his family in 1882 are particularly charming because we see a Filipino on his first trip abroad. He may have taken a boat rather than a plane, but the experience is the same. From the boat where he was initially seasick and bored after the long journey, he wrote:
+
+“The following day, at dawn, Napoli (Naples) appeared to us, a gigantic city that lies asleep beside Vesuvius, a volcano that seems to be guarding this wonderful city. Its extent from Pasilipo Mountain until the other extreme, all populated, would be the same as from the town of Calamba until beyond Los Baños. It has elegant edifices, like the Royal Palace, the Castle of Santelmo and St. Telmo, numerous hotels, the Tower of Massaniello, and the lugubrious state prison.
+
+“We were not allowed more than one hour to go ashore which I spent visiting Napoli at the risk of being left behind. Those of us who went ashore were four, and accompanied by a tour guide, we went around the city. It was the first European city I passed through. From pleasure to pleasure, from surprise to surprise, in an elegant coach, guided by a guide who spoke French, I went through those streets, carefully paved with large, black, flat paving stones, and crossed by streetcars. Statues, houses, stores and show-windows glittering for the lavish use of gilt and crystal attract the attention of the traveler, especially if he comes from the colonies. How sorry I am not to be able to stop and see it, study it, examine it more closely and a little more carefully. Almost one moment more and the boat would leave me behind. But all this magnificent panorama cost me much, because the coachman and guide cheated me, charging me four times more than the agreed price.”
+
+When Rizal describes the good reception he had from fellow passengers, none of whom guessed that he was from the Philippines and who often mistook him for a Japanese, we understand why he had to travel first class. He would be discriminated against in cattle class. Besides, everyone who watched “Titanic” know that in those days first class passengers had life boats and life vests during an emergency. Everyone else had to swim for life.
+
+Rizal also stayed in the best hotels. Here he describes his first ride in an elevator:
+
+Grand Hotel Noailles is one of the best hotels, if not the best, in Marseilles, with all the comforts, carpeted marble staircase, hydraulic elevators for going up and down all the floors without having to lift one foot, servants attired in dress coat with white necktie, clean and elegant, carpeted rooms with dressing tables, velvet chairs with springs, electric bells, imperial bedsteads—in short, excellent service. But it must be noted that here even the candle is paid for separately. On account of the excessive cold that penetrated everywhere, I had to keep my room, which is full of embroidered curtains and carpeted, always closed. I strolled through those wide and clean streets [of Marseilles], paved like those in Manila and full of people, attracting the attention of everybody who called me Chinese, Japanese, American, etc., but no one called me Filipino! Poor country, no one has heard of you!”
+
+Then he took an express train from Marseilles to Barcelona:
+
+“The ticket is very cheap—12 pesos and 3 pesetas, first class. You travel at full speed of from five to six leagues per hour. By boat the trip costs almost as much and it’s more uncomfortable. We were going at such speed that when we met trains running in the opposite direction, it was physically impossible to look at them because your head would turn around. That was infernal; it seemed like lightning, a monster, a shooting star. We went through tunnels, or rather mountains, one of which was so very long that at the speed we were going I believed we made it in more than five minutes.
+
+“At one stop I was much frightened. A stop of 30 minutes was announced. I went down for some necessity and after five minutes, I saw the train pulling out taking along my luggage with my money in it. I ran after it; I didn’t overtake it. Fortunately, a gendarme informed me that it would return soon and that it would only change tracks. After that I didn’t go down again.”
+
+Rizal, on his first trip, was truly an innocent abroad.
+

@@ -1,0 +1,41 @@
+
+---
+title: "Death in the time of cholera (1882)"
+summary: ""
+description: ""
+
+date: 2011-03-15
+draft: false
+---
+
+Pagasa is a wonderful acronym for the Philippine Atmospheric, Geophysical and Astronomical Services Administration. Its acronym sounds even better than its mother agency, the Department of Science and Technology or DOST. I am wishing aloud that Pagasa will keep and organize its records not only for scientific reference but for a historian who will trace calamities of the past and the way people responded.
+
+In 1865, long before Pagasa was established and became the official source of weather information in the country, a Jesuit named Federico Faura started observing the weather from the chicken coup of the Ateneo Municipal in Intramuros that later evolved into the world-famous  Manila Observatory. Now you know after whom the famous Ermita street, Padre Faura, is named.
+
+The Jesuits began issuing typhoon warnings in 1879 and started observing earthquakes in 1880. By royal decree the observatory was made the official weather forecasting agency of Spanish Philippines in 1884. Then in 1901, during the American period, the observatory became the Philippine Weather Bureau. Today although it is no longer the official agency, the observatory continues its research work, and its engaging website is full of information, including live satellite pictures, streaming weather and temperature conditions, etc.
+
+From articles in the pre-war Philippine Magazine on historical earthquakes and typhoons, I guess the observatory has records or references to various calamities down to the 16th century. Has the Philippines ever experienced destruction from tsunami in the past on a scale like the recent ones in Japan or Aceh?
+
+We have late 19th century photographs of the Philippines showing the ruins of Manila after earthquakes. We also have photos and paintings of late 19th and early 20th century floods and flooding. But what was disaster like in Rizal’s time?
+
+In July 1880 Paciano wrote his younger brother, who was then a student in Manila, to confirm a flood warning issued by the observatory. If a flood was indeed coming, Paciano advised Rizal to return home to Calamba.
+
+Rizal’s correspondence with his family is full of personal detail. He complains about the amount of his allowance or its irregular remittance. There was no “Pera-Padala” or international automatic teller machines (ATMs) in those days. He lost money on bank drafts for exchange rates and commissions. In these chatty letters, Rizal leaves us with the impressions of a colonial subject in the Mother Country, while his family provides us with news from the Philippines. Rizal’s family details rain, typhoons and floods that varied from knee-deep to neck-deep, sugar in bodegas washed away, rice fields laid to waste.
+
+There are matter-of-fact references to earthquakes, too, but they do not become notable unless someone they know becomes a casualty.
+
+Cholera passed like the Angel of Death over the Philippines in 1882, but unlike the biblical angel who only took first-born sons in homes unmarked with the blood of a lamb, cholera did not discriminate between men or women, rich or poor, young or old, good or bad. Cholera was not repelled by Palm Sunday fronds on doorways, or images of San Roque, invoked against pestilence.
+
+Silvestre Ubaldo, Rizal’s brother-in-law, was a telegraph operator based in Bulacan who was up-to-date with the news. He summarized everything in his letter of October 1882:
+
+“[Cholera] is the prevailing sickness in Manila that is causing much hardship since 20 August. It began in San Nicolás, spread to Tondo, and in those towns from 30 to 40 people died daily, four or five dying in one house alone. Those who brought this disease were two crewmen of the steamer Eolus from Zamboanga where there was an epidemic. When the crewmen went ashore at San Nicolás, they were spitting in a small house. The next day all the occupants of that house, as well as the crewmen, died.
+
+“In accordance with the decision of sanitary boards the house was ordered burned. From that time, the epidemic spread to the whole of  Manila, but there not as many people died as in San Nicolás and Tondo. Then it reached Bulacan. At this capital there are deaths daily—as  many as 25. Even Muñiz, the prosecuting attorney here, caught it at 3 o’clock in the morning and by noon he was dead. Baliuag,  Guingua and Malolos are the hardest hit here. In each of these towns, about 30 die daily.
+
+“This epidemic spread almost all over the Philippines so that the [Governor] General ordered many flannel blankets, as well as medicine, in Hong Kong and sent them to the provinces for the sick. Almost every day, the General goes around the public markets in Manila and orders spoiled fruits, meat or fish to be thrown away.
+
+“Every town has a  hospital where the sick are gathered. All the dead, even Spaniards, whoever they may be, are not taken to church anymore but are immediately taken to the mountain without fees. The officers of  justice go around the town, ordering the cleaning and taking away of  the dead immediately. They have their own cart and stretcher, the cart for the dead, and the stretcher for the sick. However, if the family refuses to give up the body they leave it alone, but they order the dead, even the sick, to be brought down and they are not put in coffins…”
+
+Cholera was swift and deadly. It did not spare the Rizals or people they knew and loved.
+
+(Conclusion on Friday)

@@ -1,0 +1,35 @@
+
+---
+title: "Chulalongkorn’s elephants"
+summary: ""
+description: ""
+
+date: 2011-03-22
+draft: false
+---
+
+Visitors to the National Museum of Indonesia in central Jakarta are greeted by a bronze elephant at the entrance of the colonial-style building that explains why Indonesians know their museum by the nicknames Gedung Gajah (Elephant House) or Museum Gajah (Elephant Museum). This bronze elephant was a gift from Chulalongkorn, King of  Siam (Thailand), who visited Dutch Batavia (now Java, Indonesia) in  1871.
+
+This would have been another bit of useless information to be filed for future use except that this historic bronze elephant has a twin in Singapore that now greets visitors to Arts House (the former Parliament Building). This elephant was also a gift of Chulalongkorn during a visit to Singapore in 1871. Now, if  Chulalongkorn had honored the Spanish Philippines with a visit, we would have a bronze elephant in Manila, too.
+
+I hope to write an article on royal visits to  colonial Philippines some day since I have envelopes filled with notes and photocopied material relating to the visits of Norodom I of Cambodia, the Grand Duke Alexis of Russia, and the Duque de Edimburgo in the late 19th century. To supplement the archival material, I remember seeing photographs of the Duque de Edimburgo’s visit in the Geronimo B. de los Reyes Museum in Cavite many years ago. Then there was the visit of Edward VII whose abdication led to the succession by George VI and the recent film “The King’s Speech.” It is not well known that Edward, then a prince and future English king, suffered a scrape while playing polo, resulting in a scar that he proudly displayed as a souvenir of his Manila visit.
+
+In 1872, some months after the execution of Gomburza, the Philippines was visited by Norodom I, King of Cambodia. Unfortunately, Norodom left no public monuments for us to remember him by, but history records that he was smitten by a certain Josefa Roxas from Bulacan who tactfully turned him down when he proposed marriage. Roxas was gifted with a jewel that ended up as one of the treasures of the ancient ivory image of Our Lady of the Holy Rosary or La Naval de Manila, venerated in Sto. Domingo Church in Quezon City today.  This jewel has been missing for years now, but it was allegedly shown to the king’s grandson, Prince Norodom Sihanouk, during his visit to Manila in 1969.
+
+Like many historians, I have collected obscure facts over the years that often run through my mind like a flowing stream. What begins as seemingly useless bits of information can become relevant when connected with something else and woven into a narrative.
+
+Chulalongkorn’s elephant in Jakarta is related to the one in Singapore, which was seen by Rizal, who noted in his travel diary in, May 1882: “The palace of the Rajah (sic) of Siam is also notable and has a small iron elephant and what-not on the pedestal placed in front of the building.”
+
+No fact is ever wasted. A Philippine connection lies in wait.  Each piece in a jigsaw puzzle forms a picture of the past.
+
+The National Museum of Indonesia is visually overwhelming. Hundreds  of artifacts are crammed into halls and display cases, in an arrangement and display that harks back to the 19th century. After four visits, I am overloaded with connections and questions between Indonesia and the  Philippines. Some of their early art and sculpture are similar to ours: they have the same betel-chewing utensils and cutters; they have  wooden figures that resemble the bulul from the Cordilleras; the wavy  keris reminds me of the bladed weapon often found in images of San  Miguel defeating the devil; they call their weapons “senjata”  while we call  ours “sandata”; they have gongs and other brass percussion instruments that look and sound like the kulintang of Mindanao;  they also have the game sungka which they call “congklak” (pronounced songklak).
+
+I spent a lot of time in the halls filled with ancient porcelain  because the Chinese ceramics from the Song to the Ching dynasties, as  well as porcelain from Vietnam and Thailand which were found in archeological sites throughout Indonesia are of the same types and designs found in the Philippines—proof of an ancient maritime trade route.
+
+Reading the captions for these artifacts was also interesting: guci (pronounced gusi) is our common word for jar. A bowl in Indonesian is mangkuk, and in Filipino it is mangkok?
+
+Their Neolithic stone tools resemble ours. Their ancients called these gigi geledek(lightning tooth), the same belief we have in the Philippines.
+
+Each time I leave the museum at closing time I ask: How come I know more and am more at home with  Western culture than the culture of our Asean neighbors? I now regret not paying attention when my high school teacher lectured on the Madjapahit and Sri Vijaya empires.
+
+Walking through displays of ancient inscriptions on stone and copper reminded me of the so-called Laguna Copper Plate Inscription (LCI). The writing inscribed on the LCI resembles ancient Javanese, and in the Museum Gajah in Jakarta are similar copper plate inscriptions from the  same period. One Javanese copper plate inscription was a discharge of  debt. How depressing that our LCI, our earliest extant writing, is not a  fragment of long lost epic literature or even a love poem but a receipt for payment of debt. We have a lot in common with Indonesia than we care to admit.
