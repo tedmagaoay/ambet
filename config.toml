@@ -872,7 +872,7 @@ uglyURLs = false
     # Note: valid for the `posts` and
     #       `page` homepage layout only
 
-    postMetaDateFormat = "2006.1.2"
+    postMetaDateFormat = "January 2, 2006"
     # ATTENTION: be sure to follow the
     #            specified format
     #            https://gohugo.io/functions/format/
