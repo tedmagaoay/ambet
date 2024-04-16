@@ -1,6 +1,5 @@
-
 ---
-title: "Chulalongkorn’s elephants"
+title: "0005 Chulalongkorn’s elephants"
 summary: ""
 description: ""
 

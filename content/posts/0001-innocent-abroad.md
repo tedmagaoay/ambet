@@ -1,6 +1,5 @@
-
 ---
-title: "Innocent Abroad"
+title: "0001 Innocent Abroad"
 summary: ""
 description: ""
 
@@ -33,4 +32,3 @@ Then he took an express train from Marseilles to Barcelona:
 “At one stop I was much frightened. A stop of 30 minutes was announced. I went down for some necessity and after five minutes, I saw the train pulling out taking along my luggage with my money in it. I ran after it; I didn’t overtake it. Fortunately, a gendarme informed me that it would return soon and that it would only change tracks. After that I didn’t go down again.”
 
 Rizal, on his first trip, was truly an innocent abroad.
-

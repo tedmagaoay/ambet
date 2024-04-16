@@ -1,6 +1,5 @@
-
 ---
-title: "Beauty and Butterflies"
+title: "0002 Beauty and Butterflies"
 summary: ""
 description: ""
 

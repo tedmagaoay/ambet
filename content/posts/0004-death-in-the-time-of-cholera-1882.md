@@ -1,6 +1,5 @@
-
 ---
-title: "Death in the time of cholera (1882)"
+title: "0004 Death in the time of cholera (1882)"
 summary: ""
 description: ""
 

@@ -1,0 +1,30 @@
+---
+title: "0006 Homesick in Jakarta"
+summary: ""
+description: ""
+
+date: 2011-03-29
+draft: false
+---
+
+TO SEE a Philippine flag flying (correctly, with the blue field up) in a foreign land can be quite an experience for Filipinos. In New York, our flag flies outside the United Nations Building on First Avenue, and outside the Philippine Center on Fifth Avenue. In the 1970s and 1980s when the Philippine flag flew on the Fifth Avenue side of the Waldorf Astoria, lighted up at night, it was a signal that Imelda Marcos was in town. When the Philippine flag flew outside the Plaza Hotel near Central Park, I was told, Carlos P. Romulo was in town. In Jakarta today, the Philippine flag flies outside the Asean Headquarters and outside our embassy on Jalan Imam Bonjol. For two days earlier this month, our flag flew outside the Hyatt Hotel during the state visit of President Benigno Aquino III. Our flag flying among the flags of other nations gives overseas Filipinos a sense of pride, but in the Philippines our flag is so common we see it but do not notice it.
+
+One would think that a piece of cloth that symbolizes the nation should be treated with respect, but you often see worn, faded or even tattered flags being used in the Philippines. The worst violators are often police and barangay outposts. There is no excuse to see an old flag outside a government office because there is an annual budget for the purchase of flags. Every school child is taught that flags should be brought down at night and during inclement weather, but some people have to be reminded that there are only a few places in the country where the flag can fly 24/7 and they must be lighted at night.
+
+Except during the period between Flag Day in May until Independence Day on June 12 when flags are allowed to fly in profusion everywhere, there should only be one Philippine flag flying outside a building with many flagpoles. Frequent violators of this rule are the Department of Foreign Affairs on Roxas Boulevard and the Department of Education main office in Pasig which have so many empty flag poles put to good use by well-meaning security or administrative staff.
+
+Flags are also manhandled during the singing of the National Anthem during civic or social events. Have you seen someone directing the wind from an electric fan at a flag to make it fly with the music? Or some kulang-sa-pansin person taking the flagpole from the stand and waving the flag like a conductor coaxing the congregation to sing louder or with more fervor? What about the times when some well-meaning but ignorant person picks up the flag by a corner and holds it aloft for the duration of the Anthem. I was so glad once when a retired soldier yelled at a violator, “Leave that flag alone!”  How I wish there were more people like him around.
+
+If you remember all the lives that were sacrificed in defense of this flag and the country it symbolizes, you will treat it with more respect.
+
+I remembered flag and country this week when I heard Freddie Aguilar’s  “Anak” in a Jakarta food hall and Jose Mari Chan’s “Beautiful Girl” in the grocery. To spot a Filipino band or singer abroad is quite common, but to hear Filipino tunes as piped-in music in a mall was like seeing a flag. The most famous Filipino singer in Indonesia is Maribeth who is famous for singing the dangdut (Indonesian pop song) “Denpassar Moon.” I remembered the flag when I saw San Miguel beer on a shelf between Bintang, Heineken and Corona beers. Oishi products were in the chichiria section and flavored polvoron was in a refrigerated case beside other pastries. Recognizing all these made me home-sick.
+
+The other day while walking aimlessly in Jakarta, I spotted a Chowking outlet. I went inside out of curiosity and saw that they had halo-halo and leche flan. I ordered something I would never get in Chowking back home: nasi goring ayam, a very spicy fried rice with a deep-fried crisp chicken leg that made me pine for Jollibee Chicken Joy.
+
+With Oishi on grocery shelves, Bench cannot be far behind. I was told that there is a place that sells Bench products in Jakarta, and I want to check if these are bootleg like DVDs or the real thing.
+
+There are many Filipinos in Jakarta, many professionals in banking, accounting, insurance, advertising and management, English teachers and journalists too.  Romy Gacad is with Agence France Press, Kathy Quijano is at CNN and Dina Antonio at ABC.  Filipinos blend into the landscape so well they are almost invisible, so the best place to spot them is in a Catholic church where I have re-connected with former classmates, students and Inquirer readers.
+
+Almost everyone misses pork. Philippine Ambassador-designate Rosario Aguinaldo invites me to the embassy when her lunch is sinigang na baboy. Philippine Ambassador to Asean Dr. Wilfrido Villacorta took me outside central Jakarta to a mall for pork. Adobo is doubly rare in Jakarta because Muslims do not eat pork and vinegar isn’t readily available either because fermentation also produces alcohol. The adobo stall was tucked way in the back of the food hall beside other stalls that served pork, but our breakfast specials were available: daing na bangus, longanisa, tapa, tocino and chicken pork adobo—nothing compared with food remembered from childhood but a quick fix for homesick Pinoys.
+
+Absence does make the heart grow fonder. You learn to appreciate your country more when you are abroad.

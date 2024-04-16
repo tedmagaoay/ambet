@@ -1,0 +1,36 @@
+---
+title: "0007 History in Words"
+summary: ""
+description: ""
+
+date: 2011-04-06
+draft: false
+---
+
+CONTRARY TO popular belief, “Filipinas” was not the name Magellan gave the islands he thought he discovered in 1521. If our islands had not been renamed from the original “Archipielago de San Lazaro” we would be called “Lazareans” today. Worse, if we were left with “Islas del Poniente” (Isles of the West) our nationality would be “Ponientes” today.
+
+In 1543 the Villalobos expedition went around the archipelago and gave new names to the islands to complete European maps of Asia. Mindanao was called “Caesarea Karoli” in honor of the Holy Roman Emperor Charles V, who is better known among Filipinos under his Spanish name, Carlos I, and the brandy that bears his name, Carlos Primero. When Villalobos sighted Samar and Leyte, he called them “Las Islas Filipinas” in honor of the Spanish Prince Felipe who would be crowned in 1554 as Felipe II, also known in some texts as Philip the Prudent.
+
+Felipe to Felipenas and later Filipinas is no-brainer. It becomes complicated when translated into English: Las Islas Filipinas became Philippine Islands and during the American period this was shortened to P.I. (which can mean something else!). Then it became the Republic of the Philippines or RP, and now the country is simply PH based on our Internet domain name.
+
+We also know that during the Spanish period a Filipino/Filipina meant a Spaniard born in the Philippines an “insular” as opposed to a “peninsular” who was a Spaniard born in Spain. How the Indio became Filipino is an interesting story for another column, but what concerns me today is that in some 19th century travel accounts and in English-usage we were sometimes referred to as “Philippinos” (with an “h” and a double “p”), leading some Bible-thumping Americans at the turn of the 20th century to believe that we were the Philippians to whom St. Paul addressed some of his letters.
+
+To complicate matters some more, if we follow the alternative spelling of Phillip (with one “p”) the country would be the “Phillipines” and we would be “Phillipinos.”
+
+The fact that history can be reflected or recorded in language makes me wonder when we will ever have something like the fantastic Oxford English Dictionary (or OED), which shows the different meanings of a given word from its first recorded use to the present. My copy of OED has provided hours and hours of fun. If we have a historical Filipino Dictionary, it can also provide hours and hours of fun, especially with the “bad words.” For example, one entry in such a dictionary could be “salvage” and one would learn that the word is English and means “to save or recover something,” but in late 20th century Filipino usage the same word means “summary execution” or “a victim of vigilante justice.” How can one and the same word take different meanings?
+
+How did this change in meaning come about? A “salvage” victim often shows signs that he had been torture before being savagely slain. The word used to describe this atrocity is “sinalbahe” from the Spanish “salvaje” (savage).
+
+A historical dictionary will also explain the once familiar ejaculation “Susmaryosep,” once a popular expression of shock or surprise that has fallen into disuse. Every Filipino knows this is a combination of the Spanish names of the Holy Family: Jesus, Maria and Jose. Change the order a bit and you have Vice President Binay’s given name: Jejomar.
+
+Names and naming have changed so much in the last half century, and few babies are now named Jesus. You may have noticed too that Filipinos read the name Jesus in the Spanish style with an “H” as “Hesus.” Any Filipino named Jesus raises eyebrows in the United States.
+
+In the Spanish period, the letters “y” and “i” were interchangeable, as in Ysabel/Isabel or Ysagani/Isagani. This has led to one of the enduring grammatical mistakes in our time. When the Spaniards placed “Laguna de Bay” on the map, this referred to “the lake of Ba-i.” When we shifted to English, two things happened: “de” was dropped creating “Laguna Bay” or “The Bay of Laguna” and then there is “Laguna Lake.” The place name of Bai or Ba-I disappeared. Later the government created a new creature called the Laguna Lake Development Authority. Since laguna is Spanish for lake, then “Laguna Lake” is a redundant “Lake Lake.” This is an error that has been, shall we say, sanctified by usage.
+
+Aside from the stories behind words, a historical dictionary can also trace connections between the various languages and dialects in the Philippines. It can also trace connections between our language and those of other countries. There are Chinese words in our language. There are Filipino words in American, Mexican and Spanish. There are Indonesian words in our languages, or is it vice-versa?
+
+I have been dreaming of a Filipino historical dictionary for years and wonder if I will see even the beginnings of it in my lifetime.
+
+* * *
+
+Errata. Dr. Benito Legarda spotted an error in a previous column: There is no Fifth Avenue side to the Waldorf Astoria Hotel in New York. I meant Park Avenue. Another reader spotted a mistake in my Indonesian: iga means rib, not beef. I was referring to Iga sapi or beef rib that they make into a soup similar to our bulalo or nilaga.
