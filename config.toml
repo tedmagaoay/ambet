@@ -456,7 +456,7 @@ uglyURLs = false
 
     displayListTitle = true
 
-    listDateFormat = "January 2"
+    listDateFormat = "Jan 2"
     # ATTENTION: be sure to follow the
     #            specified format
     #            https://gohugo.io/functions/format/
