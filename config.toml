@@ -54,7 +54,7 @@ uglyURLs = false
 [permalinks]
     categories = "/categories/:slug/"
     tags = "/tags/:slug/"
-    posts = "/:slug/"
+    posts = "/:filename/"
 
 # Taxonomies
 [taxonomies]
